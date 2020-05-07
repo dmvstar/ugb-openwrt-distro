@@ -1,1 +1,0 @@
-Asus distro
